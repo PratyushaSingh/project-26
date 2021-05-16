@@ -1,4 +1,4 @@
-This is chocolate cake recipe,
+This is chocolate cake recipe
 this is a very easy recipe 
 you can make it anytime and it doesnt take a lot of time to make too!!
 Also with tasty chocolate buttercream frosting!
